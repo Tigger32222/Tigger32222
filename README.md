@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tigger32222
-- 👀 I’m interested in ... Jr Web Development, IT Analysts, Help Desk, Everything IT!
+- 👀 I’m interested in ... Jr Web Development, IT Analysts, Help Desk, Everything IT and Crypto!
 - 🌱 I’m currently learning ... Front End Web Development
 - 💞️ I’m looking to collaborate on ... Development of something amazing!
 - 📫 How to reach me ... Uniquesky@protonmail.com
